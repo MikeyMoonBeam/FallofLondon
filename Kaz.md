@@ -1,7 +1,8 @@
 ---
-title:Kaz Scene
+title: Kaz Scene
 ---
 
-# Where we are
+# Overview
 
-Things to do 
+Kaz tries to get the players to either join her or to goad them into frenzying.
+
