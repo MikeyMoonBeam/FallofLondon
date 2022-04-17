@@ -1,0 +1,3 @@
+**Say you want a revolution**
+
+Wolfgang's Camarilla are not the only gang in town. London has been a city of rebels and revolutionaries, philosophers and reformers, and there are still Kindred left who embody this. While Wolfgang's genteel takeover may hold north of the river, the south is a different matter entirely. Rumors of a free state of Croydon started flowing up not long after Met's SO13 had been defunded and reorganised. Are they just opportunists, trying to carve out their territory in the vacuum of Greater London, or are they ideologues wishing to build New Carthage on the ashes of Mithras' city? S
