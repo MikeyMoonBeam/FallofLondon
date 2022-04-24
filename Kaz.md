@@ -4,7 +4,7 @@ title: Kaz Scene
 
 # Overview
 
-The purpose of this scene is to make the players lose their shit and 
+The purpose of this scene is to introduce Kaz, see if the players join the revolution or if they lose their shit on cameras.
 
 ## Principal Actors
 
