@@ -1,0 +1,4 @@
+
+**It's the economy, stupid - Favours and Boons**
+
+For mortals, money makes the world go round, for vampires it is all about favors. *Boons* is the closest thing Kindred society (particularly the Camarilla) has to currency. While not a subject of written rules, the network of favours owed forms the basis of vampire society, and the need to repay a favour is vigorously enforced at all levels of kindred society. The old need it to keep the young in check, Princes and Elders grant domains, protection and influence in return for a never-ending supply of smaller favours. For the young it is the only means of advancing, by managing to perform a 
