@@ -14,10 +14,9 @@ The PCs attend Elysium in London, and meet some other vampires.
     * Hamish
 * Give the players a chance to discuss events with the primary STCs
 * Hunt scene throughout London
-* Introduce:
-    * **Walter** Osric has a question about Europol - needs help with Robert Lamont - researcher who wants to stronger 
-    * **Rowan** Michel has a desire for help with next month's Elysium - An extravaganza he hopes on Exhibition road
-    *  
+
+    
+
 
 ## Principal Characters
 
@@ -25,4 +24,39 @@ The PCs attend Elysium in London, and meet some other vampires.
 * Osric
 * Mina
 * Echo
-* 
+* Ophelia
+
+* The journalist -- Anthony Smith has been made a Brujah!
+
+
+
+
+
+## Introductions
+
+* Introduce:
+    * **Walter** Osric has a question about Europol - needs help with Robert Lamont - researcher who wants to stronger 
+    * **Rowan** Michel has a desire for help with next month's Elysium - An extravaganza he hopes on Exhibition road 
+    * **Owen** Lacrima has an interest in his life in the underground - invites him to a meeting
+    * **Lilith** 
+        * Echo wishes to engage her in conversations about feminism, mysticism and her views on the prince
+        * Osric sounds her out about her working for him on a more 
+
+## Discussions
+
+What to do
+
+* Mina happily confesses to the murder of the doctor. Surprised that she wasn't asked about it. Tells the players that Ophelia requested it
+* Ophelia shrugs and walks away
+* Echo will high-light the amusing results of the escapades near borough market. Showing the 
+* Anthony Smith is giddy - not sure why he is here.
+
+
+## Unveiling 
+
+
+
+### Blood Hunt
+
+Wolfgang highlights the offense of Anthony's embrace
+
