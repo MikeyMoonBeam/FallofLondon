@@ -11,6 +11,7 @@ The purpose of this scene is to introduce Kaz, see if the players join the revol
 Name    Clan/Species     Combat Pool      Notables
 ----    ------------     -----------     ---------------------------------------------------------   
 Kaz          Brujah          7             Celerity 2, Presence 4, Potence 3
+
 Kenneth      Tremere         6             Dominate 4, Blood Sorcery 3, Auspex 2
 Abbas        Human           5             Molotov Cocktails (2 aggravated damage), Machete (+3)
 Khalil       Human           5             Knife (+2)
