@@ -1,6 +1,6 @@
 # The "Cleric" - Lay preacher
 
-You are a travel the Norwegian coast, preaching the word of God, giving the gifts of the Spirit to the communities you visit. During the day, you work with your flock in their everyday toil, and at night you preach the word of God anywhere you can. You believe that your example of hard work, sacrifice and the gifts of healing and blessing, will bring people closer to God.
+You are travel the Norwegian coast, preaching the word of God, giving the gifts of the Spirit to the communities you visit. During the day, you work with your flock in their everyday toil, and at night you preach the word of God anywhere you can. You believe that your example of hard work, sacrifice and the gifts of healing and blessing, will bring people closer to God.
 
 
 Questions:

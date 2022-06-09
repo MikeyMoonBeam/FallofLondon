@@ -1,0 +1,3 @@
+# The Magic-User - Occult Scholar
+
+Your mother died in childbirth. Your first memory was your father's hateful stare as you entered his library. Slowly he groomed you, initiating you into the mysteries of hell. By day, he would preach the word of god to his pious flock as the provost of your province, at night he prepared to sacrifice you to the Devil as Abraham would Isak to God, believing that it would bring your mother back to him.
